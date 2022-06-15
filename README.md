@@ -1,1 +1,1 @@
-# edwardswk.github.io
+# edwardswk.com
